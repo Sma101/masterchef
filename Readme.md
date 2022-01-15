@@ -1,0 +1,1 @@
+Butter. Eggs. Perhaps flour for added structure and body. Salt to amplify flavor. Leavening — baking powder or soda, or both — for structure. Vanilla for balance, and maybe a touch of added coffee
